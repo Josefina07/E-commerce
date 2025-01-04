@@ -1,0 +1,1 @@
+ShopMate is a modern e-commerce platform offering a wide range of products, from fashion and electronics to home goods. With a user-friendly interface, ShopMate makes it easy to find your favorite items at competitive prices. We are committed to delivering a seamless shopping experience and exceptional customer service
